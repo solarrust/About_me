@@ -11,8 +11,8 @@
 
 В свободное время, пока я не постигаю азы хакерского мастерства, я воспитываю двух сыновей-разбойников и мужа. А еще веду маленький, на несколько тысяч человек блог, где каждый день рисую дневник о своей жизни. И делаю это с 2014 года. Все доказательства его существования тут [Dinochek000](www.instagram.com/dinochek000)(осторожно, запрещенная сеть).
 
-В блоге живут вот такие вот зайцы [![image.jpg](https://i.postimg.cc/pLfq4nsY/image.jpg)](https://postimg.cc/K1YPg4SR)
+В блоге живут вот такие вот зайцы [![image.jpg](https://i.postimg.cc/D0cZ4hFX/image.jpg)](https://postimg.cc/dZLvgzhs)
 И очень много разных комиксов обо мне и о сыновьях-разбойниках. Вроде таких :arrow_down:
-[![253.jpg](https://i.postimg.cc/W1V1TQ7L/253.jpg)](https://postimg.cc/7fBkNtcm)
+[![253.jpg](https://i.postimg.cc/kMyXcn3V/253.jpg)](https://postimg.cc/PNPjfnqh)
 
 - Надеюсь было интересно :blush:
